@@ -1,8 +1,11 @@
-# 💜Eray Nejdet💜😂Interesting Life 😉Unique Personality 🍰 😎🔫Program Lover🗡💖
-😘#Smart Boy😄
-😇#SIMPLE Chhora😊
-😘#ZeRo Attitude❎
-😍#Foodie🍕
-😍#Cute Kameena😉
-😍#Haram Khor Boy👿
-😍#Still Single😍
+
+
+
+
+
+
+
+
+
+
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=EraX72)](https://github.com/anuraghazra/github-readme-stats)
