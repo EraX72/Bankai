@@ -1,4 +1,4 @@
-# 💜Eray Nejdet💜 👑Single 🚫Simple🚫 😂Interesting Life 😉Unique Personality 🍰 😎🔫Program Lover🗡💖
+# 💜Eray Nejdet💜😂Interesting Life 😉Unique Personality 🍰 😎🔫Program Lover🗡💖
 😘#Smart Boy😄
 😇#SIMPLE Chhora😊
 😘#ZeRo Attitude❎
